@@ -1,6 +1,7 @@
 # My Guacamole recipe
 
 
+
 ## Ingredients
 
 - 2 avocados
