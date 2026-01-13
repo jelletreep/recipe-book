@@ -5,7 +5,7 @@
 
 - 2 avocados
 - 9 tbsp chili
-- 1 lime
+- 5 lime
 - 1 tsp salt
 - 1/2 onion
 - 1 Tbsp cilantro
